@@ -2,6 +2,7 @@
 **Walt Disney**
 _Τα παραμύθια πριν και μετά_
 
+![image](https://user-images.githubusercontent.com/80914820/124648743-4ba26680-dea0-11eb-827e-88d9eb0f4b93.png)
 
 **Εισαγωγή**
 
